@@ -1,1 +1,3 @@
 # What-questions-should-I-ask-before-esophageal-cancer-surgery-
+Before undergoing esophageal cancer surgery, patients should ask key questions to prepare for the procedure and recovery. These include: What type of surgery is recommended—open, laparoscopic, or robotic? What are the risks and expected outcomes? How experienced is the surgeon with this type of cancer? What will recovery involve, including hospital stay, diet, and follow-up care? Also, inquire about complication rates and survival outcomes at that center. Getting clarity on these questions helps in building confidence and making an informed decision.
+🔗 Read full article here: https://www.drnitinsinghal.com/esophageal-cancer-surgery-5-questions-to-ask-your-surgeon/
